@@ -1,5 +1,5 @@
 ## Sobre mim:
-Me chamo Luana, tenho 17 anos e estudo na Universidade Tecnologica Federal do Paraná 
+Me chamo Luana, tenho 17 anos e estudo na Universidade Tecnologica Federal do Paraná. Estou cursando o terceiro período do curso técnico. 
 
 
 <div>
